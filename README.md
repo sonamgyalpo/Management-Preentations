@@ -1,4 +1,4 @@
-# Management-Preentations
+# Management-Presentations
 
 This Video addresses Two different issues:
 1.) Why Uber could raise prices due to profitability and safety issues.
